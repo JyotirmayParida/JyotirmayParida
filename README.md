@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @JyoirmayParida 
+- 👋 Hi, I’m @JyotirmayParida  
